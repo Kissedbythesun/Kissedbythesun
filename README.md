@@ -1,14 +1,22 @@
 # MEEEEEE
 DNI LIST FIRST!!
+
 proshipers
+
 darkshipers
+
 predators
+
 trump suporters
+
 etc!!
 
 Im ok with it list
+
 Via - we arent friends but i have no hard feelings
+
 caleb/collie - same with you
+
 via-caleb friends - your fine just dont be rude or anything
 
 

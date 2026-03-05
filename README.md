@@ -1,17 +1,17 @@
 # MEEEEEE
-                                DNI LIST FIRST!!
+                                                    DNI LIST FIRST!!
 
-                                proshipers
+                                                      proshipers
 
-darkshipers
+                                                      darkshipers
 
-predators
+                                                      predators
 
-trump suporters
+                                                    trump suporters
 
-etc!!
+                                                          etc!!
 
-<img width="450" height="80" alt="image" src="https://github.com/user-attachments/assets/88dc0d79-785d-45a4-80a2-4cbe8a1db342" />
+                    <img width="450" height="80" alt="image" src="https://github.com/user-attachments/assets/88dc0d79-785d-45a4-80a2-4cbe8a1db342" />
 
 Im ok with it list
 

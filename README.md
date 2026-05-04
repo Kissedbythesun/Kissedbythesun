@@ -1,4 +1,7 @@
-# MEEEEEE
+# wip
+<img width="3072" height="3072" alt="image" src="https://github.com/user-attachments/assets/ad2312d4-af78-4492-bca8-5523d65531e4" />
+
+
 DNI LIST FIRST!!
 
 proshipers
@@ -11,22 +14,4 @@ trump suporters
 
 etc!!
 
-<img width="450" height="80" alt="image" src="https://github.com/user-attachments/assets/88dc0d79-785d-45a4-80a2-4cbe8a1db342" />
-
-Im ok with it list
-
-Via - we arent friends but i have no hard feelings
-
-caleb/collie - same with you
-
-via-caleb friends - your fine just dont be rude or anything
-
-<img width="750" height="90" alt="image" src="https://github.com/user-attachments/assets/0398f86b-ff43-4eee-a053-4fb5790690a4" />
-
-I am jason/Starscream!!!! 
-
-I am a trans man, and go by he/him pronouns. The dog ones are optional and i am NOT forcing them on anyone!<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c0b0e9d7-07e2-4dc6-a42a-89a712812d41" />
-
-I am a starscream kinnie!! And also a megatron yume/selfshipper!!
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/cfa78f89-659b-4263-bf84-199f36fc7ecb" />
-
+<img width="3072" height="3072" alt="image" src="https://github.com/user-attachments/assets/0b22b86e-9f2b-422e-88c5-79f62038b65d" />

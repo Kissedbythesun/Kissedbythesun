@@ -11,9 +11,6 @@ predators
 
 trump suporters
 
-Via
-
-Caleb
 
 hasbinhotel fans
 

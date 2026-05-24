@@ -6,3 +6,6 @@
 
 
 <img src="https://media.tenor.com/L_ZV26pWOaEAAAAj/1x1x1x1.gif" alt="a poster that says you are beautiful as a rose"/>
+
+<img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
+

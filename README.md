@@ -11,3 +11,24 @@
 
 
 <img src="https://blinkies.cafe/b/blinkiesCafe-WO.gif" alt="generated blinkie"/><img src="https://blinkies.cafe/b/display/0023-trans-pride.gif" alt="this user is trains blinkie"/>
+
+<img src="https://blinkies.cafe/b/blinkiesCafe-TH.gif" alt="generated blinkie"/>
+
+MAGA
+
+HASBINHOTEL FANS
+
+HELAVABOSS FANS
+
+HOMOPHOBIC PEOPLE
+
+UNDER 13
+
+RACISTS
+
+JUST RUDE PEOPLE GO AWAY
+
+ANTI ABORTION
+
+
+<img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>

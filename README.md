@@ -12,21 +12,21 @@ $${\color{#EBA734}Haii \space im \space jason, \space im \space a \space yumeshi
 
 $${\color{#EBA734}DNI}$$
 
-MAGA
+$${\color{#EBA734}MAGA}$$
 
-(iwec)HASBINHOTEL FANS
+$${\color{#EBA734}(iwec) \space HASBINHOTEL \space FANS}$$
 
-(iwec)HELAVABOSS FANS
+$${\color{#EBA734}(iwec) \space HELAVABOSS \space FANS}$$
 
-HOMOPHOBIC PEOPLE
+$${\color{#EBA734}HOMOPHOBIC \space PEOPLE}$$
 
-UNDER 13
+$${\color{#EBA734}UNDER \space 13}$$
 
-RACISTS
+$${\color{#EBA734}RACISTS}$$
 
-JUST RUDE PEOPLE GO AWAY
+$${\color{#EBA734}JUST \space RUDE \space PEOPLE \space GO \space AWAY}$$
 
-ANTI ABORTION
+$${\color{#EBA734}ANTI \space ABORTION}$$
 
 
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>

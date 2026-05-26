@@ -13,7 +13,7 @@ $${\color{#EBA734}Haii \space im \space jason, \space im \space a \space yumeshi
 <p align="center">
 <img src="https://blinkies.cafe/b/display/0023-trans-pride.gif" alt="this user is trains blinkie"/>
 
-$${\color{#EBA734}DNI}$$
+$${\color{#EBA734}DNI:}$$
 
 $${\color{#EBA734}MAGA}$$
 
@@ -36,3 +36,9 @@ $${\color{#EBA734}ANTI \space ABORTION}$$
 
 <p align="center">
 <img src="https://media1.tenor.com/m/kiZa4_5rqhUAAAAd/zabooboo3-minecraft.gif" alt="a screenshot of a video game with the number 64 on the top left"/>
+
+<p align="center">
+<img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
+
+$${\color{#EBA734}"Liebe, \spave so \space klingt \space Liebe}$$
+$${\color{#EBA734}Leiser \space als \space normal, \space doch \space viel \space lauter \space als das \space letzte \space Mal"}$$

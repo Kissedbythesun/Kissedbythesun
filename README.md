@@ -10,7 +10,7 @@ $${\color{#EBA734}Haii \space im \space jason, \space im \space a \space yumeshi
 
 <img src="https://blinkies.cafe/b/display/0023-trans-pride.gif" alt="this user is trains blinkie"/>
 
-DNI
+$${\color{#EBA734}DNI}$$
 
 MAGA
 

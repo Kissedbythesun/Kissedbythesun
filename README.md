@@ -33,3 +33,6 @@ $${\color{#EBA734}ANTI \space ABORTION}$$
 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
+
+<p align="center">
+<img src="https://media1.tenor.com/m/kiZa4_5rqhUAAAAd/zabooboo3-minecraft.gif" alt="a screenshot of a video game with the number 64 on the top left"/>

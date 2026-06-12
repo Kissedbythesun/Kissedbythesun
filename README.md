@@ -43,8 +43,7 @@ $${\color{#A70000}ANTI \space ABORTION}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
-<img src="blob:chrome-untrusted://media-app/56de04b6-f16d-4864-a389-5054468f5f05" alt="Screenshot 2026-06-11 6.21.57 PM.png"/>
-
+<img src="https://s4.ezgif.com/tmp/ezgif-47b1583899505869.gif" alt="[animate output image]"/>
  
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>

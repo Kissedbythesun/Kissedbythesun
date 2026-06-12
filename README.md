@@ -1,12 +1,13 @@
 # wip
-$${\color{#EBA734}"Liebe, \space so \space klingt \space Liebe}$$
-$${\color{#EBA734}Leiser \space als \space normal, \space doch \space viel \space lauter \space als das \space letzte \space Mal"}$$
+$${\color{#A70000}"Liebe, \space so \space klingt \space Liebe}$$
+$${\color{#A70000}Leiser \space als \space normal, \space doch \space viel \space lauter \space als das \space letzte \space Mal"}$$
  
  
  
  
  
-$${\color{#EBA734}Haii \space im \space jason, \space im \space a \space yumeshipper \space and \space kinnie!! \space check \space my \space pronouns \space page}$$
+$${\color{#A70000}Haii \space im \space jason, \space im \space a \space yumeshipper \space and \space kinnie!!$$
+$${\color{#A70000}check \space my \space pronouns \space page}$$
 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
@@ -20,23 +21,23 @@ $${\color{#EBA734}Haii \space im \space jason, \space im \space a \space yumeshi
 <p align="center">
 <img src="https://blinkies.cafe/b/display/0023-trans-pride.gif" alt="this user is trains blinkie"/>
 
-$${\color{#EBA734}DNI:}$$
+$${\color{#A70000}DNI:}$$
 
-$${\color{#EBA734}MAGA}$$
+$${\color{#A70000}MAGA}$$
 
-$${\color{#EBA734}(iwec) \space HASBINHOTEL \space FANS}$$
+$${\color{#A70000}(iwec) \space HASBINHOTEL \space FANS}$$
 
-$${\color{#EBA734}(iwec) \space HELAVABOSS \space FANS}$$
+$${\color{#A70000}(iwec) \space HELAVABOSS \space FANS}$$
 
-$${\color{#EBA734}HOMOPHOBIC \space PEOPLE}$$
+$${\color{#A70000}HOMOPHOBIC \space PEOPLE}$$
 
-$${\color{#EBA734}UNDER \space 13}$$
+$${\color{#A70000}UNDER \space 13}$$
 
-$${\color{#EBA734}RACISTS}$$
+$${\color{#A70000}RACISTS}$$
 
-$${\color{#EBA734}JUST \space RUDE \space PEOPLE \space GO \space AWAY}$$
+$${\color{#A70000}JUST \space RUDE \space PEOPLE \space GO \space AWAY}$$
 
-$${\color{#EBA734}ANTI \space ABORTION}$$
+$${\color{#A70000}ANTI \space ABORTION}$$
 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
@@ -48,6 +49,4 @@ $${\color{#EBA734}ANTI \space ABORTION}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 
-
-<img width="4096" height="4096" alt="image" src="https://github.com/user-attachments/assets/cceb5d89-879b-415a-aaf2-2216ab6cc868" />
 

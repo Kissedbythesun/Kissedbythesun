@@ -13,8 +13,8 @@ $${\color{#A70000}check \space my \space pronouns \space page}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
-<img src="https://media1.tenor.com/m/xEbblLOM6wAAAAAd/a-regect-regect.gif" alt="a picture that says goodnight pookies bear"/>
-
+<img src="https://media.discordapp.net/attachments/1266668583811809331/1514791179852582982/IMG_3155.jpg?ex=6a2ca6b8&amp;is=6a2b5538&amp;hm=75f469fa9879d926dd435018be2b71e2db563ee65407ab7c6b0be020aea5f2d7&amp;animated=true" alt="Image"/>
+ 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 

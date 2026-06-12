@@ -6,7 +6,7 @@ $${\color{#A70000}Leiser \space als \space normal, \space doch \space viel \spac
  
  
  
-$${\color{#A70000}Haii \space im \space jason, \space im \space a \space yumeshipper \space and \space kinnie!!$$
+$${\color{#A70000}Haii \space im \space jason, \space im \space a \space yumeshipper \space and \space kinnie!!}$$
 $${\color{#A70000}check \space my \space pronouns \space page}$$
 
 <p align="center">

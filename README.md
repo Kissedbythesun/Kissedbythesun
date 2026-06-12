@@ -43,8 +43,8 @@ $${\color{#A70000}ANTI \space ABORTION}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/1266668583811809331/1514790646102098010/IMG_2743.jpg?ex=6a2ca639&amp;is=6a2b54b9&amp;hm=eb46b195de9ad474bed5cde30e91d331bcd331474ec14edc43cc1b95db9cdcf4&amp;animated=true" alt="Image"/><img width="600" height="858" alt="image" src="https://github.com/user-attachments/assets/fad8cc92-39d8-4ad1-a1b5-3125e1a1b930" />
-
+<img src="https://media.discordapp.net/attachments/1266668583811809331/1514790646102098010/IMG_2743.jpg?ex=6a2ca639&amp;is=6a2b54b9&amp;hm=eb46b195de9ad474bed5cde30e91d331bcd331474ec14edc43cc1b95db9cdcf4&amp;animated=true" alt="Image"/>
+ 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 

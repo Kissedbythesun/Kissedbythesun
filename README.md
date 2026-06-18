@@ -21,15 +21,15 @@ $${check \space my \space pronouns \space page}$$
 <p align="center">
 <img src="https://blinkies.cafe/b/display/0023-trans-pride.gif" alt="this user is trains blinkie"/>
 
-$${\color{#A70000}DNI:}$$
+$${DNI:}$$
 
-$${\color{#A70000}MAGA}$$
+$${MAGA}$$
 
-$${\color{#A70000}(iwec) \space HASBINHOTEL \space FANS}$$
+$${(iwec) \space HASBINHOTEL \space FANS}$$
 
-$${\color{#A70000}(iwec) \space HELAVABOSS \space FANS}$$
+$${(iwec) \space HELAVABOSS \space FANS}$$
 
-$${\color{#A70000}HOMOPHOBIC \space PEOPLE}$$
+$${HOMOPHOBIC \space PEOPLE}$$
 
 $${UNDER \space 13}$$
 

@@ -1,7 +1,7 @@
 # wip
 $${"Liebe, \space so \space klingt \space Liebe}$$
-$${Leiser \space als \space normal, \space doch \space viel}
-$${lauter \space als das \space letzte \space Mal"}$$
+$${Leiser \space als \space normal, \space doch \space viel}$$
+$${lauter \space als \space das \space letzte \space Mal"}$$
  
  
  

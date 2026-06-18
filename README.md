@@ -13,8 +13,8 @@ $${check \space my \space pronouns \space page}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
-
-
+<img src="https://media.tenor.com/2lqzvoN5GmAAAAAC/noli-roblox.gif" alt="a black and white photo of a person &#39;s face with the words dsb3z in the corner"/>
+ 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
@@ -43,7 +43,7 @@ $${ANTI \space ABORTION}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
-
+<img src="https://media.tenor.com/zXPC9TqGHGkAAAAC/aspx-the-tempest.gif" alt="a picture of a red pyramid with the name aspx"/>
  
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>

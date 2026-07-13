@@ -46,8 +46,8 @@ $${ANTI \space ABORTION}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
-<img src="https://media.tenor.com/zXPC9TqGHGkAAAAC/aspx-the-tempest.gif" alt="a picture of a red pyramid with the name aspx"/>
- 
+ <img src="https://media1.tenor.com/m/ztclCElLuVkAAAAd/parrotx2-parrot.gif" alt="a minecraft character with the name parrotm2 on the top of his head"/>
+
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 

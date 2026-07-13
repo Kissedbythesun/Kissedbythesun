@@ -13,7 +13,8 @@ $${check \space my \space pronouns \space page}$$
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
- 
+ <img width="531" height="376" alt="image" src="https://github.com/user-attachments/assets/455243d6-ba03-40d4-896a-6eca9ec664a7" />
+
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 

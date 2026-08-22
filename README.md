@@ -15,7 +15,8 @@ $${check \space my \space pronouns \space page}$$
 
 
 <p align="center">
- <img width="531" height="376" alt="image" src="https://github.com/user-attachments/assets/455243d6-ba03-40d4-896a-6eca9ec664a7" />
+ <img width="531" height="376" <img width="1196" height="1144" alt="image" src="https://github.com/user-attachments/assets/dd7990c3-2166-4b50-88c6-8d4898c49473" />
+
  
 
 <p align="center">
@@ -46,7 +47,8 @@ $${ANTI \space ABORTION}$$
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
 <p align="center">
- <img src="https://media1.tenor.com/m/ztclCElLuVkAAAAd/parrotx2-parrot.gif" alt="a minecraft character with the name parrotm2 on the top of his head"/>
+<img width="1079" height="806" alt="image" src="https://github.com/user-attachments/assets/6c657637-531c-44ae-ba22-18545c9131d0" />
+
 
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>

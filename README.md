@@ -46,10 +46,7 @@ $${ANTI \space ABORTION}$$
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
-<p align="center">
-<img width="1079" height="806" alt="image" src="https://github.com/user-attachments/assets/6c657637-531c-44ae-ba22-18545c9131d0" />
-
-
+<img src="https://media1.tenor.com/m/83jYPUAuQGYAAAAC/tf2-team-fortress-2.gif" alt="a couple of men are standing next to each other and kissing ."/>
 <p align="center">
 <img src="https://media.tenor.com/neRZrojlfIcAAAAi/divider-aesthetic.gif" alt="a black and white image of a striped pattern on a white background"/>
 
